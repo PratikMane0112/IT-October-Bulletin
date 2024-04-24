@@ -1,0 +1,6 @@
+![Screenshot 2024-04-24 144219](https://github.com/PratikMane0112/IT-October-Bulletin/assets/153143167/95871b82-68c1-458d-9eb7-d2b95571ae0f)
+![Screenshot 2024-04-24 144246](https://github.com/PratikMane0112/IT-October-Bulletin/assets/153143167/d82c5f61-eb30-4aed-beae-afddf3094f1a)
+![Screenshot 2024-04-24 144303](https://github.com/PratikMane0112/IT-October-Bulletin/assets/153143167/f1a6dba4-42d5-48d2-9a1a-ec732c564f2f)
+![Screenshot 2024-04-24 144317](https://github.com/PratikMane0112/IT-October-Bulletin/assets/153143167/71125064-e486-429a-b6a1-fa7ad846f0ed)
+![Screenshot 2024-04-24 144330](https://github.com/PratikMane0112/IT-October-Bulletin/assets/153143167/f11279d3-a8bc-4163-b80c-a0ab8fe84097)
+![Screenshot 2024-04-24 144346](https://github.com/PratikMane0112/IT-October-Bulletin/assets/153143167/f7954932-d489-4285-a540-576f7427a972)
